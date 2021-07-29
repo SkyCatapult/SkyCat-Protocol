@@ -8,4 +8,4 @@ This guarantees a truly uniquely fair distribution.
 
 Telegram: https://t.me/skycatapult
 Twitter: https://twitter.com/skycatapult
-Website: comming soon
+Website including Airdrop: comming soon
